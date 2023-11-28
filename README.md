@@ -1,0 +1,1 @@
+# 1C-stek-test
